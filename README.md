@@ -16,9 +16,7 @@
 
 - 🔭 I’m currently working on **Mexo (football news application)**
 
-- 🌱 I’m currently learning **React Js**
-
-- 💬 Ask me about **Html tailwind css php**
+- 💬 Ask me about **React Next js tailwind css php**
 
 - 📫 How to reach me **wised4536@gmail.com**
 
