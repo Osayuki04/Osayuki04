@@ -26,7 +26,7 @@
 
 - [Twitter](https://x.com/Yuki_dev04?t=6nsFXf7XyaZss9QDOt86tQ&s=09) 
 - [LinkedIn](https://www.linkedin.com/in/osayuki-obazee-677765331?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app) 
-- [Tiktok](https://www.tiktok.com/@yukidev_0040?_t=ZS-8yPOLsvvH29&_r=1) 
+- [Tiktok](https://www.tiktok.com/@yuki.dev4?_t=ZN-90xpISFzXni&_r=1) 
 <p align="left">
 </p>
 
